@@ -1,0 +1,1 @@
+Carbon Hydrogen and Oxygen are found in all, while Nitrogen is found only in Proteins and Nucleic Acids. Phosphorus can obly be found in Nucleic Acids as well as a special type of lipid called a **phospholipid** that makes up the cell membrane.
